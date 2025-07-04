@@ -1,0 +1,1 @@
+# induxis-assets
